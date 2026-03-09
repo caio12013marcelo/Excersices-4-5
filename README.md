@@ -8,7 +8,7 @@ Fomos tomar banho de mar, antes da hora do almoço.
 
 E minha mãe como pessoa de extremo zelo, estava de mãos dadas comigo, quando fomos surpreendidas com uma onda.
 
-Pelo fato de estar de mãos dadas com ela, e ela ter caído por conta da conta, ela me afundou. 
+Pelo fato de estar de mãos dadas com ela, e ela ter caído por conta da onda, ela me afundou. 
 
 Fomos parar na areia da praia, após rolar com as pernas para o ar.
 
